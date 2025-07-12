@@ -40,4 +40,4 @@ Gauri Gupta
 gaurigupta.20823@gmail.com
 
 DEMO VIDEO LINK:
-https://drive.google.com/file/d/14x7BVPUnUldN6Kl0LO_8btqaBIXMxJv3/view?usp=drive_link
+https://drive.google.com/file/d/1NpMC3hpM3Oy48rM7ReqlACb6wX8rWIoL/view?usp=drive_link
